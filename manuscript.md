@@ -1,2 +1,2 @@
 # Awsome Manuscript
-Autorin: Sigrun
+Autorin: Sigrun Putjenter
